@@ -1,1 +1,2 @@
-# Organized-an-Overnight-Camp
+# Pavana Lake Camping
+As per sources : In recent years, areas surrounding Pavana Dam and Pavana Dam Reservoir have seen a rapid rise in tourism due to the waterbody's proximity to Lonavala hill station and forts such as Lohagad, Tikona, and Tung. Various camping-site businesses have been started around Pavana Lake. Agro-tourism has also flourished. Pavana Lake attracts visitors mainly from the two major neighboring cities of Pune and Mumbai. Around 4,000 people from these two cities visit the lake every weekend.
